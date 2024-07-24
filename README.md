@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vishnusanjay262004@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14_u_K23mhZeuak56c4bM1QtPA1kJyuFQ/view](https://drive.google.com/file/d/14_u_K23mhZeuak56c4bM1QtPA1kJyuFQ/view)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
